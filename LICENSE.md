@@ -1,4 +1,4 @@
-
+premium Script for escape waves for lucky blocks offers the most advanced escape waves for lucky blocks Script, with auto-farm and unlimited stamina.
 
 
 
